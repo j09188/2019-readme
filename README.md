@@ -16,4 +16,4 @@
 * 因為本人吃素，給人一種和尚的氣息(?)
 
 ***
-![拜託讓我進]("
+![拜託讓我進](https://github.com/j09188/README/blob/master/dog.png)
